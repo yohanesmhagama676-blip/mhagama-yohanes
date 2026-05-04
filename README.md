@@ -1,2 +1,3 @@
 # mhagama-yohanes
-Kujua jinsi yakutumai
+Mozoezi yangu
+
